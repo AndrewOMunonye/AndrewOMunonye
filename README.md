@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning CREST CPSA
 - 💞️ I’m looking to collaborate on projects using cybersecurity tools
 - 📫 How to reach me: Email: munonyeobinna@yahoo.co.uk
-- 😄 Pronouns: ...
+- 😄 Pronouns: He/Him
 - ⚡ Fun fact: I love Basketball
 
 <!---
